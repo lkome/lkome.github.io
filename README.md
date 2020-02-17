@@ -1,2 +1,0 @@
-# lkome.github.io
-CNDS
